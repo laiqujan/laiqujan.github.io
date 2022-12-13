@@ -1,2 +1,1 @@
-# laiqujan.github.io
-Muhammad Laiq
+#Muhammad Laiq
