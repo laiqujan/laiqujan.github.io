@@ -1,1 +1,1 @@
-#Muhammad Laiq, PhD candidate at Blekinge Institue of Technology, Sweden
+Muhammad Laiq, PhD candidate at Blekinge Institue of Technology, Sweden
